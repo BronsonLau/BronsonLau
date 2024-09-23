@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning (just a beginner and too much).
 - 💞️ I’m looking to collaborate on some practical and moderate project for new comer.
 - 📫 How to reach me : keyfrankbruce@gmail.com.
-- 😄 Pronouns: Bronson / 
+- 😄 Pronouns: Bronson / 柯宇 / Yu Ke
 - ⚡ Fun fact: Don't ready to tell yet (kk
 
 <!---
